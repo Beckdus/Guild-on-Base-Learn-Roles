@@ -1,1 +1,1 @@
-data optimization and social distancin
+data optimization and social distanci
