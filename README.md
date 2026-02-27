@@ -1,1 +1,1 @@
-data optimization and farming, loan
+data optimization and farming
