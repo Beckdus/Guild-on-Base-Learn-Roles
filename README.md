@@ -1,1 +1,1 @@
-data optimization and guild on 
+data optimization and guild o
