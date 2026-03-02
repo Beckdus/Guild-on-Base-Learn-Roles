@@ -1,1 +1,1 @@
-data optimization and future not
+data optimization and future no
