@@ -1,1 +1,1 @@
-data optimization and starta pull 
+data optimization and starta pul
