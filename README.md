@@ -1,1 +1,1 @@
-data optimization and distancing
+data optimization and distanci
